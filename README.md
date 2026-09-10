@@ -1,8 +1,12 @@
 <div align="center"> 
-<img src="https://files.catbox.moe/3y2ngp.png">
-</div>
-
+<img src="https://files.catbox.moe/erxr1d.jpg">
 <br>
-
-<p align="center">jude . <3
+<br>
+<p>${\textsf{\color{#ffffff}alt / spam follow . block if unwanted}}$
 </p>
+<br><br><details> <summary>${\textsf{\color{#ffffff}tap}}$</summary>
+<br><p>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ I follow cool people or people with cool pt skins ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎  ‎ ‎  inform me immediately if any of them are problematic
+</p>
+</details>
+</p> <br><br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a> <div align="center"></p>
+</div>
